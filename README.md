@@ -17,7 +17,6 @@
 
 - 👨‍💻 𝙰𝚕𝚕 𝚘𝚏 𝚖𝚢 𝚙𝚛𝚘𝚓𝚎𝚌𝚝𝚜 𝚊𝚛𝚎 𝚊𝚟𝚊𝚒𝚕𝚊𝚋𝚕𝚎 𝚊𝚝 [https://github.com/bhavikachopra06](https://github.com/bhavikachopra06)  
 
----
 
 <h3 align="left">𝙲𝚘𝚗𝚗𝚎𝚌𝚝 𝚠𝚒𝚝𝚑 𝚖𝚎:</h3>  
 
